@@ -1,7 +1,13 @@
 rew
 
 
-r
+rFS
+FDS
+SA
+F
+DFSA
+F
+
 wetr[ihih ijbbuo 
 v wy  ht
 e r er
